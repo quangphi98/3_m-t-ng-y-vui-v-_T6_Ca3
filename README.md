@@ -1,6 +1,6 @@
 # 1 ngày vui vẻ của Phi
 # Lịch trình trong một ngày của [Phi](https://github.com/quangphi98)
-<img src="![Uploading image.png…]()
-">
+"![[Uploading image.png…](https://img4.thuthuatphanmem.vn/uploads/2020/06/22/hinh-nen-dien-thoai-chuyen-dong-dep_094134625.gif)https://img4.thuthuatphanmem.vn/uploads/2020/06/22/hinh-nen-dien-thoai-chuyen-dong-dep_094134625.gif]
+
 
 
